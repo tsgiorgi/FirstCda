@@ -1,2 +1,3 @@
 # FirstCda
 Es aris Sacdeli versia
+Nu davamate kide Ragac...
